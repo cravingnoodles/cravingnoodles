@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cravingnoodles
-- 👀 I’m interested in coding, animals and compliance
+- 👀 I’m interested in coding, the office, fresh coffee, food,  animals and compliance
 - 🌱 I’m currently learning phyton, java and korean
 - 💞️ I’m looking to collaborate on everything with value
 - 📫 How to reach me ; emineatarx@gmail.com
